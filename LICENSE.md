@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Audition for macOS addon with ultimate Adobe Audition for macOS Addon | text-animation + glitch-effect. Featuring text-animation and glitch-effect, it's the
 
 
 
